@@ -1,1 +1,1 @@
-# Syntecxhub_-Portfolio_Website
+# Syntecxhub_Portfolio_Website
